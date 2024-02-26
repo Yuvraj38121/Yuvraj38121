@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (idk)
 - 📫 How to reach me (not gonna tell you)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am 15
+- ⚡ Fun fact: I play valorant.
 
 <!---
 Yuvraj38121/Yuvraj38121 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
